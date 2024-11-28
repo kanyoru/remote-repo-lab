@@ -40,7 +40,7 @@ Belt or accessories in Antique Gold.
 
 ________________________________________________________
 
-Combination 4: Warm Gray and Rustic Copper
+Combination 4: Warm and Rustic Copper
 Main Colors:
 
 
