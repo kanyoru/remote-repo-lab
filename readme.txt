@@ -21,3 +21,20 @@ Where to Use:
 Outerwear or boots in Dark Chocolate Brown
 Innerwear or accessories in Light Khaki Beige
 Metallic details like belts, buckles, or jewelry in Copper Bronze.
+
+_________________________________________________________
+
+Combination 3: Terracotta and Deep Gold
+Main Colors:
+
+Terracotta Brown (#9E4624)
+Ivory Beige (#FFFFF0)
+Accent Metallic: Antique Gold (#C88A4A)
+
+Why it works: Terracotta introduces a soft reddish-brown warmth, while ivory beige provides a light, creamy balance. Antique gold adds a vintage metallic shine that enhances the earthy tones.
+Where to Use:
+
+Pants or boots in Terracotta Brown
+Shirt or scarf in Ivory Beige
+Belt or accessories in Antique Gold.
+
