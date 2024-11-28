@@ -40,18 +40,17 @@ Belt or accessories in Antique Gold.
 
 ________________________________________________________
 
-Combination 4: Warm Gray and Rustic Copper
+Combination 4: Espresso and Champagne Beige
 Main Colors:
 
+Espresso Brown (#3E2A47)
+Champagne Beige (#E8D2B6)
+Accent Metallic: Soft Copper (#B76E55)
 
-Warm Gray (#8D7F6F)
-Pale Beige (#D8C4A1)
-Accent Metallic: Rustic Copper (#B87333)
-
-Why it works: Warm gray adds a subtle, grounded neutrality, while pale beige lightens the look. Rustic copper enhances the palette with its warm metallic glow, keeping it natural yet sophisticated.
+Why it works: The deep richness of espresso pairs effortlessly with the soft, creamy champagne beige, while soft copper adds a warm, rosy metallic accent that elevates the overall earthy vibe.
 Where to Use:
 
-Outerwear in Warm Gray
-Innerwear or accessories in Pale Beige
-Metallic accents like buttons or trims in Rustic Copper.
+Jacket or boots in Espresso Brown
+Shirt or accessories in Champagne Beige
+Belt or jewelry in Soft Copper.
 
